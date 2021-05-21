@@ -11,3 +11,15 @@ Secondly, ı need  distribution of the participants according to the severity of
 Finally, I need data on total anxiety and total hopelessness for women and men separately to compare anxiety and hopelessness by gender.
 I receive all the data from the research article on the investigation of anxiety and hopelessness levels according to psychosocial and demographic variables during the COVID-19 pandemic process.
 
+References
+
+https://jag.journalagent.com/kpd/pdfs/KPD-35403-RESEARCH_ARTICLE-ERDOGDU.pdf
+
+https://www.cnnturk.com/saglik/koronavirus-salgininin-psikososyal-etkileri
+
+https://www.thelancet.com/journals/lanpsy/article/PIIS2215-0366(20)30073-0/fulltext
+
+https://dergipark.org.tr/en/download/article-file/1154772
+
+
+
