@@ -15,8 +15,6 @@ References
 
 https://jag.journalagent.com/kpd/pdfs/KPD-35403-RESEARCH_ARTICLE-ERDOGDU.pdf
 
-https://www.cnnturk.com/saglik/koronavirus-salgininin-psikososyal-etkileri
-
 https://www.thelancet.com/journals/lanpsy/article/PIIS2215-0366(20)30073-0/fulltext
 
 https://dergipark.org.tr/en/download/article-file/1154772
